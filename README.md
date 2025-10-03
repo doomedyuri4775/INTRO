@@ -1,9 +1,10 @@
-                                                                         # INTRO
-                             Using this as my intro lewlllll hiii
+                                                       # INTRO
+                                         Using this as my intro lewlllll hiii
 
-                            My name is Carolina! (Nelly and Claud for close moots only!)
+                               My name is Carolina! (Nelly and Claud for close moots only!)
                                           I am a minor !! (12/18)
-                            I have DID, and ADD. I consider myself a pansexual but                                                                                                                        Stuff i like are,,; OBJECTIFIED, Adventure Time:(Fiona and Cake),
+                              I have DID, and ADD. I consider myself a pansexual butch      
+                            Stuff i like are,,; OBJECTIFIED, Adventure Time:(Fiona and Cake),
                              BFDI/TPOT/BFDIA, Regretevator, Forsaken, Phighting, TADC, MD, 
                             CRK, FNAF, Starving For Attention, Fabel and Maxine (yuri..) etc!!
                               Interacting is always welcome! Same for C+H !! (cudcomf too!!)
